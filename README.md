@@ -15,4 +15,4 @@ O Projeto Unes é o primeiro website criado através da plataforma Udemy, como p
 
 Nikoly Pereira da Silva
 
-[Perfil LinkedIn](www.linkedin.com/in/nikoly-pereira-da-silva)
+[Perfil LinkedIn](https://www.linkedin.com/in/nikoly-pereira-da-silva)
